@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @XxSuperHackerVulnexX
+- 👀 I’m interested in Bug Hunting n Pentesting
+- 🌱 I’m currently learning Python
+- 📫 My Discord is: momoladinastiacoscuarmy
+- 😄 Pronouns: he/him
+- 🔯 Jew
